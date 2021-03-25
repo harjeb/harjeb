@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @harjeb
-- 👀 I’m interested in fucking
+- 👀 I’m interested in fxxking
 - 🌱 I’m currently learning nothing
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
