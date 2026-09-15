@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @harjeb
-- 👀 I’m interested in sleeping
+- 👀 I’m interested in vibe coding
 - 🌱 I’m currently learning nothing
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
